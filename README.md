@@ -1,1 +1,0 @@
-Jinhyeon & Yeseul Wedding Day
